@@ -23,6 +23,9 @@
 ──────────────────────── ୨୧ ──────────────────────── 
 
 ⟡ [twitter/x](https://x.com/YaYandex_Naviga?t=jAUc1xcfuCcLG1UChO8IqQ&s=09)  .  [carrd](https://yandexxnaviga.carrd.co/)  .  [strawpage(might redo l8r)](https://yandexnaviga.straw.page/)  .  [atabook(sign pwease)](https://yandexnaviga.atabook.org) ⟡
+<div align="center">
+
+⟡ [rblx](https://www.roblox.com/users/3526756482/profile) ⟡
 
 
 <div align="center"> 
