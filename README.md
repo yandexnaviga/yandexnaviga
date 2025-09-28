@@ -22,7 +22,7 @@
 
 ──────────────────────── ୨୧ ──────────────────────── 
 
-⟡ [twitter/x](https://x.com/yandexnaviga?t=9TX_Ky1EJsujbiClp7nKsA&s=09)  .  [carrd](https://yandexxnaviga.carrd.co/)  .  [strawpage(might redo l8r)](https://yandexnaviga.straw.page/)  .  [atabook(sign pwease)](https://yandexnaviga.atabook.org) ⟡
+⟡ [twitter/x](https://x.com/yandexnaviga?t=9TX_Ky1EJsujbiClp7nKsA&s=09)  .  [carrd](https://thecrimsonblade2.carrd.co/)  .  [strawpage(might redo l8r)](https://yandexnaviga.straw.page/)  .  [atabook(sign pwease)](https://yandexnaviga.atabook.org) ⟡
 <div align="center">
 
 ⟡ [rblx](https://www.roblox.com/users/3526756482/profile) ⟡
